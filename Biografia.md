@@ -22,7 +22,7 @@
 
 ## Conecte-se comigo
 
-- 📫 Você pode me encontrar no frank montes (Linkedin) ou enviar um e-mail para "fgabrieloliveira1@gmail.com" .
+- 📫 Você pode me encontrar no "frank montes" (Linkedin) ou enviar um e-mail para "fgabrieloliveira1@gmail.com" .
 - 📸 Siga-me no "frankmontes__"(Instagram) 
 
 ---
